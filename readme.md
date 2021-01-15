@@ -1,23 +1,23 @@
 # Hikes we did in 2020
 
 ### Pond Trail at Binghamton University Nature Preserve
-- March 21
+- March 21 - 3.7 km
 
 ### Anthony's Nose II on Bear Mountain
-- March 26
+- March 26 - 2.2 km
 - Messed up the start of this hike?
 - <https://www.alltrails.com/trail/us/new-york/anthonys-nose-via-camp-smith-trail>
 
 ### Women's federation monument in the NJ Palisades 
-- March 31
+- March 31 - 3.3 km
 - <http://www.njpalisades.org/pdfs/hikeStateline.pdf>
 
 ### Fire Tower and Bare Rock Loop in Sterling Forest State Park
-- April 5
+- April 5 - 9.8 km
 - <https://www.alltrails.com/trail/us/new-york/fire-tower-and-bare-rock-loop>
 
 ### Popolopen Torne in Bear Mountain
-- April 11
+- April 11 - 
 - <https://theoutbound.com/new-york/hiking/hike-popolopen-torne>
 
 ### Timp-Torne Trail and Dunderberg Spiral Railway and Loop
